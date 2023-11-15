@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+![1](https://github.com/G3N3RATION-X/G3N3RATION-X/assets/102898784/192f03f8-05f9-4e56-97ac-703fd8b6ab96)
+
+
 <!--
 **G3N3RATION-X/G3N3RATION-X** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
